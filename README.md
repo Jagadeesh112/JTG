@@ -1,2 +1,0 @@
-# JTG
-WebPage - Bharath GK
